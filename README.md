@@ -56,5 +56,3 @@ Restaurant Ideas
 	•	Merle’s Whiskey Kitchen
 	•	The Fat Lamb
 	•	Proof on Main
-
-Feel free to customize this template to fit your preferences and add any additional details.
